@@ -2,7 +2,7 @@
 
 👅I know languages: Russian, Ukrainian, English.
 
-🧠I know proggraming languages: Lua, Html, Python.
+🧠I know programming languages: Lua, HTML, Python.
 
 ❗Wanna to learn: C#, Java.
 
