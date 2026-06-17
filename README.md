@@ -2,11 +2,11 @@
 
 👅I know languages: Russian, Ukrainian, English.
 
-🧠I know programming languages: Lua, HTML, Python.
+🧠I know programming languages: Lua, HTML, Python, C++ Raylib.
 
 ❗Wanna to learn: C#, Java.
 
-🌐I have a website: xdevster.mooo.com
+🌐I have a website: xdevster.rf.gd
 
 🚹Gender: Male
 
